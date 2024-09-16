@@ -9,8 +9,8 @@
 
 
 ## **Spotify - !**
-https://open.spotify.com/playlist/4UnG7NMKlKE76CuIag9YXN?si=879dbcd1187c46b0
-https://open.spotify.com/playlist/6uPYXo1XNEmB311szcHeGt?si=f0a181aab07b4a2e
+- https://open.spotify.com/playlist/4UnG7NMKlKE76CuIag9YXN?si=879dbcd1187c46b0
+- https://open.spotify.com/playlist/6uPYXo1XNEmB311szcHeGt?si=f0a181aab07b4a2e
 
-## **areaseo !!**
-https://youtu.be/zjoGOhdKc5Q?si=RQobm-bxU0wtA4Qj
+## **areaseo yt !!**
+- https://youtu.be/zjoGOhdKc5Q?si=RQobm-bxU0wtA4Qj
